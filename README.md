@@ -19,7 +19,7 @@ Gosto de explorar novas ideias, debater opiniões fortes e buscar sempre aumenta
 - **[Criatividade](ca://s?q=Explique_meu_valor_de_criatividade)**  
 
 ## 📫 Como me encontrar
-- GitHub: [https://github.com/gisellealvessilva2-rgb](ca://s?q=Como_criar_um_usuario_no_GitHub)  
+- GitHub: [https://github.com/gisellealvessilva2-rgb](https://github.com/gisellealvessilva2-rgb)  
 - LinkedIn: [www.linkedin.com/in/gisellealvessilva2](www.linkedin.com/in/gisellealvessilva2)  
 - Email: gisellealvessilva2@gmail.com  
 
